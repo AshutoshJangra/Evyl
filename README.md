@@ -24,7 +24,7 @@ https://user-images.githubusercontent.com/42537935/224244910-6ef8c17a-72b8-4edf-
 
 ### Download Apk
 
-- [CLICK HERE TO TRY THE APP]([https://drive.google.com/file/d/126jQbkY9g8lyeYbDg_QdqtLmg9bCFPPO/view?usp=share_link](https://drive.google.com/file/d/12CKqcMeAzfuHNdhxRUIIi4LIA439Wo_3/view?usp=share_link))
+- [CLICK HERE TO TRY THE APP](https://drive.google.com/file/d/12CKqcMeAzfuHNdhxRUIIi4LIA439Wo_3/view?usp=share_link))
 
 
 
